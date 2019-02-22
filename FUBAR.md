@@ -4,3 +4,4 @@ John works at Kohl's
 
 Jess: I have a greyhound named Roman.
 Jesse has two cats: Madeline and Calvin.  
+Jerod enjoys running marathons and triathlons
